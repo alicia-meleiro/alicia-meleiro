@@ -1,1 +1,1 @@
-Soy @alicia-meleiro, actualmente estudiante de 3er curso de ingeniería de telecomunicaciones, en la mención de telemática
+Actualmente soy estudiante de Ingeniería de Telecomunicaciones, en la mención de telemática. Aquí se encuentran algunos de los proyectos en los que he trabajado a lo largo del grado.
